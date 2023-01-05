@@ -1,2 +1,2 @@
-# theaveragebet.github.io
+# jcsaa.github.io
 A blog about casino operations
